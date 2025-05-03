@@ -1,1 +1,1 @@
-# coolest-projects-2025
+# Coolest Projects 2025
